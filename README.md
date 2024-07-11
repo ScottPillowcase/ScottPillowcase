@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ... scott.pileckas@criminaljusticehub.org.uk
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i was nominated for a knighthood
+- ⚡ Fun fact: i met PM GORDON BROWN in 2008 at uni
 
 <!---
 ScottPillowcase/ScottPillowcase is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
